@@ -9,15 +9,15 @@ Undetected and Safe: Run your scripts securely without the fear of being detecte
 
 🌟 Why Choose Xeno Executor?
 
-    Enhanced Gameplay: Unlock new features, cheats, and hacks that enhance your Roblox experience ⚙️.
-    Regular Updates: Continuous updates to ensure compatibility with the latest Roblox versions and security measures 🔄.
-    No Bans: Xeno Executor stays undetected by Roblox’s security system, minimizing the risk of account bans 🚫.
-    Free to Use: Enjoy all the features of Xeno Executor without any hidden fees or subscriptions 🆓.
+Enhanced Gameplay: Unlock new features, cheats, and hacks that enhance your Roblox experience ⚙️.
+Regular Updates: Continuous updates to ensure compatibility with the latest Roblox versions and security measures 🔄.
+No Bans: Xeno Executor stays undetected by Roblox’s security system, minimizing the risk of account bans 🚫.
+Free to Use: Enjoy all the features of Xeno Executor without any hidden fees or subscriptions 🆓.
 
 ⚡️ How It Works:
 
-    Download and Install: Get the latest version of Xeno Executor from the official website ⬇️.
-    Launch Roblox: Open Roblox and log into your account 👾.
-    Execute Scripts: Open Xeno Executor and execute your favorite scripts with a single click! 👍
+Download and Install: Get the latest version of Xeno Executor from the official website ⬇️.
+Launch Roblox: Open Roblox and log into your account 👾.
+Execute Scripts: Open Xeno Executor and execute your favorite scripts with a single click! 👍
 
 Start using Xeno Executor today to take your Roblox experience to the next level! 🚀
